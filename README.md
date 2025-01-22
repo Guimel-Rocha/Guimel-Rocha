@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao meu perfil! Prazer, eu sou o Guimel-Rocha 😁
+## Bem-vindo(a) ao meu perfil! Prazer, eu sou o Guimel-Rocha 👾
 
  <div>
    <a href="https://github.com/Guimel-Rocha">
